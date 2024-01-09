@@ -1,4 +1,4 @@
- 🌳 Hi, I’m @Suzylau
+ 🌳 Hi, I’m @SuzyLau
  
  📚 I am a Business Analytics graduate
  
